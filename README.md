@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @Yogaanand6507
 - 👀 I’m interested in Desgining in Adobe Photoshop
 - 🌱 I’m currently learning Photoshop and graphic desgining
+-    And i am a desginer in intermediate level to desgin posters websites and postcards advertisment ads etc etc...
 - 💞️ I’m looking to collaborate on Desgining Factor fields
 - 📫 How to reach me mail me akkisetti6507@gmail.com
 
